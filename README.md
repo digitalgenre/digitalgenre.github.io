@@ -1,1 +1,1 @@
-Сайт Родиона Коскова. Адрес: rodionkoskov.github.io
+Сайт Родиона Коскова. Адрес: digitalgenre.github.io
